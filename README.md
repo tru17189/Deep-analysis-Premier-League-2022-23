@@ -5,4 +5,4 @@ Every step did it here is comented and explained. Therefore, the results gotten 
 
 Anyway, there are several reasons why you might be interested in an england football analysis. Investments, fanaticism, bets, etc. All them are actually good reasons, so I hope everything presented here can be useful and interesting for the reader. Enjoy.
 
-Note: Even though this work is complete and ready to be viewed. It's not finished yet, I'm planning add more sections and improve existing ones. last update: 11/12/23
+Note: Even though this work is complete and ready to be viewed. It's not finished yet, I'm planning add more sections and improve existing ones. last update: 12/18/23
